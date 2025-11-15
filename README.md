@@ -1,1 +1,1 @@
-# Animasyonlu_Çizim_Ekranı
+# Animasyonlu_Çizim_Ekrani

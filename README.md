@@ -1,1 +1,1 @@
-# Animasyonlu_-izim_Ekran-
+# Animasyonlu_Çizim_Ekran-
